@@ -3,15 +3,7 @@
 
 [redo instagram](https://www.instagram.com/redo_onestopsolution/)
 
-**Take a look at what we offered :**
-
-
-
-https://user-images.githubusercontent.com/66067675/155366348-b0f84fa2-e959-47f1-af4a-da91a98fb9bc.mp4
-
-
-
-
+[Take a look at what we offered](https://youtu.be/VEo1wubjwgs)
 
 Two months after I started working on [digi_info](https://rutuja-kelkar.github.io/digi_info/) four of my other curious friends and me decided to team up & end to end video production services for college professors/ tutors to facililate their online classes during pandemic.
 
