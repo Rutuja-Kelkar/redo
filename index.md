@@ -41,9 +41,7 @@ During redo I did not have in depth info about sales, but we managed to get in f
 
 ## Strategy
 
-## Sales implementation
-
-## Testing
+## Sales process
 
 ## Live sales experiences 
 
