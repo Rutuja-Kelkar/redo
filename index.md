@@ -1,3 +1,7 @@
+Note : Please try to read my digi_info story on desktop / laptop for best website experience.
+
+**************************************************************************************************************************************************************************
+
 ## A look into my cool sales learning ride 
 **Aug 2020 - jan 2021**
 
