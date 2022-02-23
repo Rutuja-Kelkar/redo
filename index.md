@@ -2,7 +2,7 @@ Note : Please try to read my digi_info story on desktop / laptop for best websit
 
 **************************************************************************************************************************************************************************
 
-## A look into my cool sales learning ride 
+## Sales learning ride with redo
 **Aug 2020 - jan 2021**
 
 [redo instagram](https://www.instagram.com/redo_onestopsolution/)
