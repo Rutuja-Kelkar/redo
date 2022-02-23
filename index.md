@@ -7,7 +7,7 @@ Note : Please try to read my digi_info story on desktop / laptop for best websit
 
 [redo instagram](https://www.instagram.com/redo_onestopsolution/)
 
-[Take a look at what we offered](https://youtu.be/VEo1wubjwgs)
+**Take a look at what we offered [click here](https://youtu.be/VEo1wubjwgs) to watch redo video**
 
 Two months after I started working on [digi_info](https://rutuja-kelkar.github.io/digi_info/) four of my other curious friends and me decided to team up & end to end video production services for college professors/ tutors to facililate their online classes during pandemic.
 
