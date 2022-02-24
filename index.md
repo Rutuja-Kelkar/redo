@@ -1,6 +1,14 @@
-Note : Please try to read my digi_info story on desktop / laptop for best website experience.
+**Note :** Please read my digi_info story on desktop / laptop for best website experience.
 
-**************************************************************************************************************************************************************************
+**Author :** Rutuja Kelkar
+
+**Published on :** 22nd Feb 2022
+
+**Project quality | depth | content :** High 
+
+**Let's connect :** rutujakelkar.tech@gmail.com | [Twitter](https://twitter.com/therutujakelkar) | [Linkedln](https://www.linkedin.com/in/rutuja-kelkar/) | [Behance](https://www.linkedin.com/in/rutuja-kelkar/) | [Youtube](https://www.youtube.com/channel/UCiqB7um9VmhUrFlUv-6X4LQ) | [Medium](https://medium.com/@Rutuja.Kelkar)
+
+**********************************************************************************************************************************************************************************
 
 ## Sales learning ride with redo
 **Aug 2020 - jan 2021**
@@ -50,6 +58,17 @@ During redo I did not have in depth info about sales, but we managed to get in f
 ## Live sales experiences 
 
 ## Failures and iteration
+
+***********************************************************************************************************************************************************************************
+
+Thank you for visiting and scrolling through my redo project. If you'd like to talk about this project or just chat, I'd love to hear from you :)
+
+
+**Let's connect :** rutujakelkar.tech@gmail.com | [Twitter](https://twitter.com/therutujakelkar) | [Linkedln](https://www.linkedin.com/in/rutuja-kelkar/) | [Behance](https://www.linkedin.com/in/rutuja-kelkar/) | [Github](https://github.com/Rutuja-Kelkar)
+| [Youtube](https://www.youtube.com/channel/UCiqB7um9VmhUrFlUv-6X4LQ) | [Medium](https://medium.com/@Rutuja.Kelkar)
+
+- Rutuja Kelkar
+
 
 
 
