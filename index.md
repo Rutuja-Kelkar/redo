@@ -62,7 +62,7 @@ During redo I did not have in depth info about sales, but we managed to get in f
 
 ***********************************************************************************************************************************************************************************
 
-Thank you for visiting and scrolling through my digi info venture. If you'd like to talk about this project or just chat, I'd love to hear from you :)
+Thank you for visiting and scrolling through my redo venture. If you'd like to talk about this project or just chat, I'd love to hear from you :)
 
 
 **Let's connect :** 
